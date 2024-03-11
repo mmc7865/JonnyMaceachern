@@ -1,0 +1,1 @@
+This website is created for only educational purpose only.
